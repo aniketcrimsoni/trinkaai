@@ -56,6 +56,3 @@ The Enago <a href="https://www.enago.com/free-ai-content-detector/">Free AI Cont
 4. Free to Use: Enago provides this tool at no cost, making it accessible to everyone.<br>
 
 In an era where AI is common, having a free and reliable AI Content Detector ensures your writing is authentic and transparent.
-
-Whether you are a student polishing assignments or a blogger aiming for a professional edge, a <a href="https://www.trinka.ai/grammar-checker">Free Grammar Checker</a> like Trinka c
-an make your work shine.
